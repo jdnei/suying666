@@ -1,8 +1,18 @@
 # suying666速鹰666机场官方地址(2026年8月6日更新)
 suying666速鹰666机场官网地址</br>
-最新地址：[suying91.xyz](https://suying91.xyz/auth/register?code=WNv3)</br>
+最新地址01：[suying91.xyz](https://to.iix.im/sy03)</br>
+最新地址02：[suying98.xyz](https://to.iix.im/sy02)</br>
+官方地址：[suying200.org](https://to.iix.im/sy01)</br>
 </br>
+
 请发送任意内容邮件到：suying6288@gmail.com 获取最新的网站地址</br>
+
+2026最新好用的机场推荐与节点分享：[https://github.com/jdnei/JiChangTuiJian](https://github.com/jdnei/JiChangTuiJian)</br>
+## Telegram VPN 机场福利社 #AD
+[机场抽奖群](https://331024.de/archives/choujiang)｜[机场聊天群](https://331024.de/archives/choujiang)｜[机场体验群](https://331024.de/archives/choujiang)</br>
+
+[https://331024.de/archives/choujiang](https://331024.de/archives/choujiang)
+
 ## 简介
 “速鹰666机场”并非官方认可的机场名称。它更像是网络上流传的，用于描述提供VPN服务的俗称。这些服务通常旨在帮助用户绕过网络限制，访问被屏蔽的网站和应用程序。  
 以下是关于此类VPN服务（如“速鹰666机场”）的一些常见信息，请注意，这些信息仅供参考，不构成任何推荐或认可：
