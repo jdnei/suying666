@@ -1,7 +1,7 @@
 🇨🇳 中文 | 🇺🇸 [English](README_EN.md) | 🇷🇺 
 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# suying666速鹰666机场官方地址(2026年8月6日更新)
+# suying666速鹰666机场官方地址(2026年8月7日更新)
 suying666速鹰666机场官网地址</br>
 最新地址01：[suying91.xyz](https://to.iix.im/sy03)</br>
 最新地址02：[suying98.xyz](https://to.iix.im/sy02)</br>
