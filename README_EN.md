@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 English | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# suying666 VPN Official Address (Updated August 29, 2026)
+# suying666 VPN Official Address (Updated August 30, 2026)
 
 suying666 VPN Official Website Address</br>
 Latest Address 01: [suying91.xyz](https://to.iix.im/sy03)</br>
