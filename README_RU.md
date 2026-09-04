@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 Русский | 🇮🇷 [فارسی](README_FA.md)
 
-# Официальный адрес suying666 VPN (обновлено 3 сентября 2026)
+# Официальный адрес suying666 VPN (обновлено 4 сентября 2026)
 
 Адрес официального сайта suying666 VPN</br>
 Новый адрес 01: [suying91.xyz](https://to.iix.im/sy03)</br>
